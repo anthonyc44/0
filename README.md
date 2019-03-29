@@ -43,7 +43,7 @@
 - you might need this for verification or to download apps
 - you can use google voice or something similar so you dont get too 		many texts
 
-### coinbase:[https://www.coinbase.com/join/5c7c2ae53704e20aea8b2f18]
+[coinbase](https://www.coinbase.com/join/5c7c2ae53704e20aea8b2f18)
 - some websites may pay in bitcoin
 - when you buy $100 or more of bitcoin you get an extra $10
 
