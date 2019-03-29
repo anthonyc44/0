@@ -1,5 +1,5 @@
 - I apologize for how bad my site is but i hope it can help some people
-- Below I have listed websites where you can earn money, save money,find lower prices for things you want to buy
+- It's just a list of things you can do for money
 - I made this for people who want to earn money online and save money when they buy things 
 - The more time you put in the more money you will make, you can treat it like a job
 - You aren’t saving money by buying something on sale unless you were already planning on buying it
