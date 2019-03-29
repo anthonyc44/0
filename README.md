@@ -52,7 +52,7 @@
 - if you don’t like a site, use it only until you get the bonus or minimum withdraw and then use the others
 - use and try all of the cash back/coupon sites to get all of the bonuses, maybe you can take turns using each one until you receive the bonuses, and then continue using whichever ones you liked the most
 
-### these are the websites where you can find good deals, coupons, and earn cash back and other stuff
+### these are the websites where you can find good deals, coupons, and earn cash back and other stuff, just click on the blue links and sign up
 ### [befrugal](https://www.befrugal.com/rs/FMLSMYG/)
 - get $10 when you earn $10 in cashback
 
@@ -70,7 +70,7 @@
 - you get $10 	when you buy your first deal
 - for this one you should create your account when you already decided that you want to buy something because you only have 72hours to get the reward
 
-### [raise](https://geta.raise.com/AC4211)0
+### [raise](https://geta.raise.com/AC4211)
 - must spend $1 within 30 days of making account to receive the $5 bonus
 
 ### [topcashback](https://www.topcashback.com/ref/member318512653859)
@@ -89,7 +89,7 @@
 
 ### [mrrebates](http://www.mrrebates.com?refid=1342922)
 
-### these are websites where you can earn money or gift cards or points you can exchange for prizes
+### these are websites where you can earn money or gift cards or points you can exchange for prizes,just click on the blue links and sign up
 
 ### [swagbucks](https://www.swagbucks.com/p/register?rb=53893032)
 - they have a browser app:https://www.swagbucks.com/lp-savings-button?cmp=695&cxid=swagbuttonref&rb=53893032&extRefCmp=1&extRb=53893032
