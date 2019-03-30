@@ -46,7 +46,7 @@
 - when you buy $100 or more of bitcoin you get an extra $10
 
 ### How to maximize profit
-- most of these websites will give bonuses when you sign up using the links I provided,waiting or clicking somewhere else might cancel the bonus
+- most of these websites will give bonuses when you sign up using the links,waiting or clicking somewhere else might cancel the bonus
 - use as many websites as you can, many of them are similar, but the prices and pay may change
 - if you don’t like a site, use it only until you get the bonus or minimum withdraw and then use the others
 
