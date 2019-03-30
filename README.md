@@ -136,7 +136,7 @@
 - you can get video games here
 - the more people that join the the lower the price you pay
 
-### [feature point](shttps://featu.re/DWDEMC)
+### [feature points](https://featu.re/DWDEMC)
 - or use the code DWDEMC
 - bonus 50 points
 - this is a mobile app but you can sign up on pc
