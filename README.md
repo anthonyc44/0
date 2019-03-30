@@ -1,9 +1,8 @@
-- I apologize for how bad my site is but i hope it can help some people
-- It's just a list of things you can do for money
-- I made this for people who want to earn money online and save money when they buy things 
+- I listed some websites you can use to make money
+- I made this for people who want to earn money online
 - The more time you put in the more money you will make, you can treat it like a job
-- You aren’t saving money by buying something on sale unless you were already planning on buying it
-- I will try to keep everything updated and find more websites. I will try to organize everything better,fix mistakes and learn how to make a better website
+- I hope it can help some people
+- I will try to keep everything updated and to find more ways to make money online. 
 
 ### Suggestions
 - Do not create more than 1 account for each website
@@ -16,7 +15,7 @@
 - Some of the bonuses for the links I listed could have expired
 - Verification emails might be sent to spam folder
 - Sometimes PayPal freezes accounts if they see too many transactions
-- Some sites don’t work with adblock or ublock
+- Some sites don’t work with ublock
 - You might have to earn a certain amount before you can withdraw
 - I do not work for any of the companies  listed on this site
 
@@ -40,7 +39,7 @@
 
 ### smartphone
 - you might need this for verification or to download apps
-- you can use google voice or something similar so you dont get too 		many texts
+- you can use google voice or something similar so you dont get too many texts
 
 ### [coinbase](https://www.coinbase.com/join/5c7c2ae53704e20aea8b2f18)
 - some websites may pay in bitcoin
@@ -50,46 +49,9 @@
 - most of these websites will give bonuses when you sign up using the links I provided,waiting or clicking somewhere else might cancel the bonus
 - use as many websites as you can, many of them are similar, but the prices and pay may change
 - if you don’t like a site, use it only until you get the bonus or minimum withdraw and then use the others
-- use and try all of the cash back/coupon sites to get all of the bonuses, maybe you can take turns using each one until you receive the bonuses, and then continue using whichever ones you liked the most
 
-### these are the websites where you can find good deals, coupons, and earn cash back and other stuff, just click on the blue links and sign up
-### [befrugal](https://www.befrugal.com/rs/FMLSMYG/)
-- get $10 when you earn $10 in cashback
 
-### [ebates](https://www.ebates.com/r/ANTHON32911?eeid=28187)
-- must spend $25 before April 30 2019 to get $10 bonus
-
-### [joinhoney](https://joinhoney.com/ref/fk6cs95)
-- you have to install it to your browser
-- get $5 after qualifying purchase
-
-### [givingassistant](https://givingassistant.org/?rid=dC9iBRNuAw)
-- you get the $5 bonus after getting 1 dollar cashback
-
-### [groupon](https://www.groupon.com/visitor_referral/h/92fa9b86-a8cf-4f42-95c1-7db67f7b95cc)
-- you get $10 	when you buy your first deal
-- for this one you should create your account when you already decided that you want to buy something because you only have 72hours to get the reward
-
-### [raise](https://geta.raise.com/AC4211)
-- must spend $1 within 30 days of making account to receive the $5 bonus
-
-### [topcashback](https://www.topcashback.com/ref/member318512653859)
-- get a $10 bonus when you earn $10 cash back
-
-### [extrabux](https://www.extrabux.com/r/5c898673c0)
-- you get $20 for signing up and spending $5 and getting $1 cashback
-
-### [joinpiggy](https://www.joinpiggy.com/#frufreta)
-- it will ask you to install to your browser
-- get $15 for joining and make a qualifying purchase
-
-### [wikibuy](http://wbuy.me/F06SQL3)
-- it will ask you to install to your browser
-- get $5 for signing up, you might need to buy something to get it
-
-### [mrrebates](http://www.mrrebates.com?refid=1342922)
-
-### these are websites where you can earn money or gift cards or points you can exchange for prizes,just click on the blue links and sign up
+### you can earn money, gift cards or points you can exchange for prizes,just click on the blue links and sign up
 
 ### [swagbucks](https://www.swagbucks.com/p/register?rb=53893032)
 - they have a browser app:https://www.swagbucks.com/lp-savings-button?cmp=695&cxid=swagbuttonref&rb=53893032&extRefCmp=1&extRb=53893032
@@ -128,6 +90,70 @@
 
 ### [clixsense](https://csl.ink/4mLs)
 
+### [featurepoints](https://featu.re/DWDEMC)
+- or use the code DWDEMC
+- bonus 50 points
+- this is a mobile app but you can sign up on pc
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### these are the websites where you can find good deals, coupons, and earn cash back and other stuff, just click on the blue links and sign up
+### [befrugal](https://www.befrugal.com/rs/FMLSMYG/)
+- get $10 when you earn $10 in cashback
+
+### [ebates](https://www.ebates.com/r/ANTHON32911?eeid=28187)
+- must spend $25 before April 30 2019 to get $10 bonus
+
+### [joinhoney](https://joinhoney.com/ref/fk6cs95)
+- you have to install it to your browser
+- get $5 after qualifying purchase
+
+### [givingassistant](https://givingassistant.org/?rid=dC9iBRNuAw)
+- you get the $5 bonus after getting 1 dollar cashback
+
+### [groupon](https://www.groupon.com/visitor_referral/h/92fa9b86-a8cf-4f42-95c1-7db67f7b95cc)
+- you get $10 	when you buy your first deal
+- for this one you should create your account when you already decided that you want to buy something because you only have 72hours to get the reward
+
+### [raise](https://geta.raise.com/AC4211)
+- must spend $1 within 30 days of making account to receive the $5 bonus
+
+### [topcashback](https://www.topcashback.com/ref/member318512653859)
+- get a $10 bonus when you earn $10 cash back
+
+### [extrabux](https://www.extrabux.com/r/5c898673c0)
+- you get $20 for signing up and spending $5 and getting $1 cashback
+
+### [joinpiggy](https://www.joinpiggy.com/#frufreta)
+- it will ask you to install to your browser
+- get $15 for joining and make a qualifying purchase
+
+### [wikibuy](http://wbuy.me/F06SQL3)
+- it will ask you to install to your browser
+- get $5 for signing up, you might need to buy something to get it
+
+### [mrrebates](http://www.mrrebates.com?refid=1342922)
+
 ### [ibotta](https://ibotta.com/r/uixthxf)
 - first 5 people who use the link or code to sign up can get up to a $20 bonus
 - this is a mobile app but you can sign up on pc
@@ -135,9 +161,3 @@
 ### [g2a](https://www.g2a.com/r/user-5c89a603602f4)
 - you can get video games here
 - the more people that join the the lower the price you pay
-
-### [feature points](https://featu.re/DWDEMC)
-- or use the code DWDEMC
-- bonus 50 points
-- this is a mobile app but you can sign up on pc
-
