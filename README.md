@@ -105,23 +105,9 @@
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-### these are the websites where you can find good deals, coupons, and earn cash back and other stuff, just click on the blue links and sign up
+### If you want to buy things online you should be using these websites.
+### these are websites where you can find good deals, coupons, and earn cash back and other stuff, just click on the blue links and sign up
+### You aren’t saving money by buying something on sale unless you were already planning on buying it
 ### [befrugal](https://www.befrugal.com/rs/FMLSMYG/)
 - get $10 when you earn $10 in cashback
 
