@@ -57,34 +57,38 @@
 - they have a browser app:https://www.swagbucks.com/lp-savings-button?cmp=695&cxid=swagbuttonref&rb=53893032&extRefCmp=1&extRb=53893032
 - get an extra 300sb once you  earn 300sb
 
-### [mypoints](https://www.mypoints.com?rb=53893189)
-- you get 1750 points once you spend $20+
+### [YouGov](https://today.yougov.com/refer/-wax7WL8JFU6Vu1NM33RCg/)
+- you get a bonus 2000 points once you complete four surveys
 
 ### [inboxdollars](https://www.inboxdollars.com/r/1148873226?ref_src=link)
 - when I use ublock I cant view the website
 
 ### [prizerebel](https://www.prizerebel.com/index.php?r=8615669)
 
+### [YouGov](https://today.yougov.com/refer/-wax7WL8JFU6Vu1NM33RCg/)
+- you get a bonus 2000 points once you complete four surveys
+
 ### [vindale](http://tryvindale.com/VeHYKuiI)
 
 ### [gobranded](https://surveys.gobranded.com/users/register/daf3ef6c0cf069f2bf5cd64ea)
 
-### [surveysavvy](https://www.surveysavvy.com/?m=8210512)
+### [mypoints](https://www.mypoints.com?rb=53893189)
+- you get 1750 points once you spend $20+
 
-### [YouGov](https://today.yougov.com/refer/-wax7WL8JFU6Vu1NM33RCg/)
-- you get a bonus 2000 points once you complete four surveys
+
+### [surveysavvy](https://www.surveysavvy.com/?m=8210512)
 
 ### [grabpoints](https://grabpoints.com/?ref=GGH0HJ)
 - get 500 points for joining
-
-### [instagc](https://www.instagc.com/2261794)
-- there might be a 10 point bonus for people in some countries
 
 ### [pointsprizes](https://www.pointsprizes.com/ref/13077064)
 
 ### [superpay](https://superpay.me/members/withdraw/list.php?ref=anthonyc4654)
 
 ### [perk](https://perk.com/r/f84af714)
+
+### [instagc](https://www.instagc.com/2261794)
+- there might be a 10 point bonus for people in some countries
 
 ### [paidviewpoint](http://paidviewpoint.com/?r=n9gv82)
 
