@@ -66,9 +66,6 @@
 
 ### [prizerebel](https://www.prizerebel.com/index.php?r=8615669)
 
-### [YouGov](https://today.yougov.com/refer/-wax7WL8JFU6Vu1NM33RCg/)
-- you get a bonus 2000 points once you complete four surveys
-
 ### [vindale](http://tryvindale.com/VeHYKuiI)
 
 ### [gobranded](https://surveys.gobranded.com/users/register/daf3ef6c0cf069f2bf5cd64ea)
